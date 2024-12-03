@@ -1,3 +1,4 @@
+![Screenshot_20241202-224510](https://github.com/user-attachments/assets/a169f424-10be-4b6a-9bc7-49adf59ac7ba)
 ## Hi there 👋
 
 <!--
